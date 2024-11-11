@@ -1,0 +1,2 @@
+# durdur
+tugas pertama 
